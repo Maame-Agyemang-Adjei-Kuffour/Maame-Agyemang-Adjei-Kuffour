@@ -52,7 +52,7 @@ I am particularly interested in financial risk management and analysis using pro
 - Legal and business strategies for startups and non-profits.
 
 ## 📫 How to Reach Me
-- [LinkedIn Profile](https://www.linkedin.com/in/maame-agyemang-adjei-kuffour)
+- [LinkedIn Profile]([https://www.linkedin.com/in/maame-agyemang-adjei-kuffour](https://www.linkedin.com/in/maame-agyemang-adjei-kuffour-a88237153/))
 
 ## 😄 Pronouns
 - She/Her
